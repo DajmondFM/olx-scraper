@@ -1,0 +1,1 @@
+Sprawdz ile jest stron tego czego szukasz
